@@ -78,7 +78,7 @@ Finally, Systematic Aerologics is more solution-oriented than earlier studies, w
 
 #
 
-![Scuba Driller Explorer](https://github.com/user-attachments/assets/4852ddfa-8d7c-46eb-97d5-57c431c44a95)
+![Scuba Driller Explorer](https://github.com/user-attachments/assets/f66cc8f9-2ff3-4856-90c9-1b5ea58059e0)
 
 #
 ### Related Links
